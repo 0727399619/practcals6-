@@ -1,1 +1,0 @@
-# practcals6-
